@@ -1,1 +1,1 @@
-https://qwhiteq.github.io/-therium/
+https://zolkevskiu.github.io/etherium/
